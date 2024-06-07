@@ -5,6 +5,4 @@ Meu nome é Ticiane
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-![](https://media1.tenor.com/m/TTkKNgT1D3sAAAAd/gyro-gyro-zeppeli.gif)
-
 ![](https://media1.tenor.com/m/Ob8_ClbDEmEAAAAC/nerd-nerd-glasses.gif)

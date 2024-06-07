@@ -1,4 +1,4 @@
-## Seja bem vindo ao meu perfil 🤓
+## Seja bem vindo ao meu perfil 🐈‍⬛
 
 Meu nome é Ticiane
 - Estou estudando com a plataforma Alura

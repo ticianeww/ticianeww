@@ -7,4 +7,4 @@ Meu nome é Ticiane
 
 ![](https://media.tenor.com/TP12G5jWn24AAAAi/nerd.gif)
 
-![](https://tenor.com/pt-BR/view/live-to-roblax-roblox-gif-13865947015742352966)
+![](https://tenor.com/pt-BR/view/live-to-roblax-roblox-gif)

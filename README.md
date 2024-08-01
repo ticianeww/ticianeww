@@ -6,4 +6,4 @@ Meu nome é Ticiane
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ![](https://media.tenor.com/TP12G5jWn24AAAAi/nerd.gif)
-![](https://tenor.com/pt-BR/view/live-to-roblax-roblox-gif)
+![](https://tenor.com/pt-BR/view/live-to-roblax-roblox-gif-13865947015742352966)
